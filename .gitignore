@@ -1,0 +1,7 @@
+.venv/
+papers_md/
+pubmed_pdfs/
+chroma/
+plans/
+.idea/
+.env
