@@ -1,0 +1,268 @@
+# Eating Disorders
+
+**Source:** MEDLINEPLUS  
+**URL:** https://medlineplus.gov/eatingdisorders.html
+
+---
+
+- Diagnosis and Tests
+
+- Treatments and Therapies
+
+### See, Play and Learn
+
+- No links available
+
+- Statistics and Research
+
+- Clinical Trials
+
+- Journal Articles
+
+- Patient Handouts
+
+### What are eating disorders?
+
+Eating disorders are serious mental health disorders. They involve severe problems with your thoughts about food and your eating behaviors. You may eat much less or much more than you need.
+
+Eating disorders are medical conditions; they are not a lifestyle choice. They affect your body's ability to get proper nutrition. This can lead to health issues, such asheartandkidneyproblems, or sometimes even death. But there are treatments that can help.
+
+### What are the types of eating disorders?
+
+Common types of eating disorders include:
+
+- Binge-eating, which is out-of-control eating. People with binge-eating disorder keep eating even after they are full. They often eat until they feel very uncomfortable. Afterward, they usually have feelings of guilt, shame, and distress. Eating too much too often can lead to weight gain andobesity. Binge-eating disorder is the most common eating disorder in the U.S.
+
+- Bulimia nervosa.People with bulimia nervosa also have periods of binge-eating. But afterwards, they purge, by making themselves throw up or using laxatives. They may also over-exercise or fast. People with bulimia nervosa may be slightly underweight, normal weight, or overweight.
+
+- Anorexia nervosa.People with anorexia nervosa avoid food, severely restrict food, or eat very small quantities of only certain foods. They may see themselves as overweight, even when they are dangerously underweight. Anorexia nervosa is the least common of the three eating disorders, but it is often the most serious. It has the highest death rate of any mental disorder.
+
+### What causes eating disorders?
+
+The exact cause of eating disorders is unknown. Researchers believe that eating disorders are caused by a complex interaction of factors. These include genetic, biological, behavioral, psychological, and social factors.
+
+### Who is at risk for eating disorders?
+
+Anyone can develop an eating disorder, but they are more common in women. Eating disorders frequently appear during the teen years or young adulthood. But people can also develop them during childhood or later in life.
+
+### What are the symptoms of eating disorders?
+
+The symptoms of eating disorders vary, depending on the disorder:
+
+The symptoms ofbinge-eatinginclude:
+
+- Eating unusually large amounts of food in a specific amount of time, such as a 2-hour period
+
+- Eating even when you're full or not hungry
+
+- Eating fast during binge episodes
+
+- Eating until you're uncomfortably full
+
+- Eating alone or in secret to avoid embarrassment
+
+- Feeling distressed, ashamed, or guilty about your eating
+
+- Frequently dieting, possibly without weight loss
+
+The symptoms ofbulimia nervosainclude the same symptoms as binge-eating, plus trying to get rid of the food or weight after binging by:
+
+- Purging, making yourself throw up or using laxatives or enemas to speed up the movement of food through your body
+
+- Doing intensive and excessive exercise
+
+Over time, bulimia nervosa can cause health problems such as:
+
+- Chronically inflamed andsore throat
+
+- Swollen salivary glands in the neck and jaw area
+
+- Worn tooth enamel and increasingly sensitive anddecaying teeth. This is caused by the exposure to stomach acid every time you throw up.
+
+- GERD(acid reflux) and other gastrointestinal problems
+
+- Severe dehydration from purging
+
+- Electrolyte imbalance, which could be too low or too high levels of sodium, calcium, potassium and other minerals. This can lead to astrokeorheart attack.
+
+The symptoms ofanorexia nervosainclude:
+
+- Eating very little, to the point of starving yourself
+
+- Intensive and excessive exercise
+
+- Extreme thinness
+
+- Intense fear of gaining weight
+
+- Distorted body image - seeing yourself as overweight even when you are severely underweight
+
+Over time, anorexia nervosa can cause health problems such as:
+
+- Thinning of the bones (osteopenia orosteoporosis)
+
+- Muscle wasting and weakness
+
+- Thin, brittle hair and nails
+
+- Dry, blotchy, or yellowish skin
+
+- Growth of fine hair all over the body
+
+- Severeconstipation
+
+- Low blood pressure
+
+- Slowed breathing and pulse
+
+- Feeling cold all the time because of a drop in internal body temperature
+
+- Feeling faint,dizzy, or weak
+
+- Feeling tired all the time
+
+- Damage to the structure and function of the heart
+
+- Multiorgan failure
+
+Anorexia nervosa can be fatal. Some people with this disorder die of complications from starvation, and others die ofsuicide.
+
+Some people with eating disorders may also have othermental disorders(such asdepressionoranxiety) or problems withsubstance use.
+
+### How is eating disorders diagnosed?
+
+Because eating disorders can be so serious, it is important to seek help if you or a loved one thinks that you might have a problem. Your health care provider may use many tools to make a diagnosis:
+
+- A medical history, which includes asking about your symptoms. It is important to be honest about your eating and exercise behaviors so your provider can help you.
+
+- A physical exam
+
+- Blood or urine tests to rule out other possible causes of your symptoms
+
+- Other tests to see whether you have any other health problems caused by the eating disorder. These can includekidney function testsand anelectrocardiogram(EKG or ECG).
+
+### What are the treatments for eating disorders?
+
+Treatment plans for eating disorders are tailored to individual needs. You will likely have a team of providers helping you, including doctors, nutritionists, nurses, and therapists. The treatments may include:
+
+- Individual, group, and/or family psychotherapy.Individual therapy may include cognitive behavioral approaches, which help you to identify and change negative and unhelpful thoughts. It also helps you build coping skills and change behavioral patterns.
+
+- Medical care and monitoring,including care for the complications that eating disorders can cause
+
+- Nutrition counseling.Doctors, nurses, and counselors will help you eat healthy to reach and maintain a healthy weight.
+
+- Medicines,such asantidepressants, antipsychotics, or mood stabilizers, may help treat some eating disorders. The medicines can also help with the depression and anxiety symptoms that often go along with eating disorders.
+
+Some people with serious eating disorders may need to be in a hospital or in a residential treatment program. Residential treatment programs combine housing and treatment services.
+
+NIH: National Institute of Mental Health
+
+- Eating Disorders(NAMI)
+
+- Eating Disorders(National Institute of Mental Health)
+
+- Eating Disorders: About More than Food(National Institute of Mental Health)Also inSpanish
+
+- Let's Talk about Eating Disorders(National Institute of Mental Health)-PDF
+
+- When Food Consumes You: Taking Eating to Extremes(National Institutes of Health)Also inSpanish
+
+## Diagnosis and Tests
+
+- Mental Health Screening(National Library of Medicine)Also inSpanish
+
+## Treatments and Therapies
+
+- Eating Disorder Treatment: Know Your Options(Mayo Foundation for Medical Education and Research)Also inSpanish
+
+- Intervention: Help a Loved One Overcome Addiction(Mayo Foundation for Medical Education and Research)Also inSpanish
+
+- Compulsive Exercise(Nemours Foundation)Also inSpanish
+
+- Anorexia Nervosa(Department of Health and Human Services, Office on Women's Health)Also inSpanish
+
+- Avoidant/Restrictive Food Intake Disorder (ARFID)(Merck & Co., Inc.)Also inSpanish
+
+- Binge Eating Disorder(Department of Health and Human Services, Office on Women's Health)Also inSpanish
+
+- Binge Eating Disorder(National Institute of Diabetes and Digestive and Kidney Diseases)
+
+- Bulimia Nervosa(Department of Health and Human Services, Office on Women's Health)
+
+- Eating Disorders and Diabetes(National Eating Disorders Association)
+
+- Pica(American Academy of Family Physicians)
+
+## Statistics and Research
+
+- Eating Disorders: Statistics(National Institute of Mental Health)
+
+## Clinical Trials
+
+- ClinicalTrials.gov: Anorexia Nervosa(National Institutes of Health)
+
+- ClinicalTrials.gov: Binge-Eating Disorder(National Institutes of Health)
+
+- ClinicalTrials.gov: Bulimia(National Institutes of Health)
+
+## Journal ArticlesReferences and abstracts from MEDLINE/PubMed (National Library of Medicine)
+
+- Article: Don't check after a snack: body checking increases eating-related threat perception.
+
+- Article: A quantitative process evaluation of a feasibility randomised controlled trial of...
+
+- Article: A Randomized-Controlled Trial Examining Telephone-Based Cognitive Behavioral Therapy for Patients After...
+
+- Eating Disorders -- see more articles
+
+- American Academy of Child and Adolescent Psychiatry
+
+- Child and Adolescent Psychiatrist Finder(American Academy of Child and Adolescent Psychiatry)
+
+- Find a Nutrition Expert(Academy of Nutrition and Dietetics)
+
+- FindTreatment.gov(Substance Abuse and Mental Health Services Administration)Also inSpanish
+
+- Help for Mental Illnesses(National Institute of Mental Health)Also inSpanish
+
+- National Eating Disorders Association
+
+- National Institute of Mental HealthAlso inSpanish
+
+- Anorexia and Bulimia: How Eating Disorders Can Affect Your Child(American Academy of Pediatrics)Also inSpanish
+
+- Avoidant/Restrictive Food Intake Disorder (ARFID) (For Parents)(Nemours Foundation)Also inSpanish
+
+- Pica(Nemours Foundation)
+
+- Binge Eating Disorder(Nemours Foundation)Also inSpanish
+
+- Compulsive Exercise(Nemours Foundation)Also inSpanish
+
+- Eating Disorders(Nemours Foundation)Also inSpanish
+
+## Patient Handouts
+
+- Anorexia(Medical Encyclopedia)Also inSpanish
+
+- Binge eating disorder(Medical Encyclopedia)Also inSpanish
+
+- Break the bonds of emotional eating(Medical Encyclopedia)Also inSpanish
+
+- Bulimia(Medical Encyclopedia)Also inSpanish
+
+- Pica(Medical Encyclopedia)Also inSpanish
+
+- What Are Common Types of Eating Disorders?(National Institute of Mental Health)-PDF
+
+## MEDICAL ENCYCLOPEDIA
+
+- Binge eating disorder
+
+- Break the bonds of emotional eating
+
+- Rumination disorder
+
+## Related Health Topics
+
+## National Institutes of Health

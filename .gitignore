@@ -1,0 +1,11 @@
+.venv/
+pubmed_pdfs/
+chroma/
+plans/
+.idea/
+.env
+__pycache__/
+*.pyc
+
+# NOTE: papers_md/ is included for teammates
+# chroma/ must be rebuilt: python create_chromadb.py --mode full

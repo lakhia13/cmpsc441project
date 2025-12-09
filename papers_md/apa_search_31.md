@@ -1,0 +1,68 @@
+# Search
+
+**Source:** APA
+**URL:** https://www.psychiatry.org/patients-families/somatic-symptom-disorder
+
+---
+
+Somatic symptom disorderis diagnosed when a person has a significant focus on physical symptoms, such as pain, weakness or shortness of breath, to a level that results in major distress and/or problems functioning. The individual has excessive thoughts, feelings and behaviors relating to the physical symptoms. The physical symptoms may or may not be associated with a diagnosed medical condition, but the person is experiencing symptoms and believes they are sick (that is, not faking the illness).
+
+A person is not diagnosed with somatic symptom disorder solely because a medical cause can’t be identified for a physical symptom. The emphasis is on the extent to which the thoughts, feelings and behaviors related to the illness are excessive or out of proportion.
+
+
+## Expert Q&A: Somatic Symptom Disorder
+
+
+
+### How can family members best support and help someone with somatic symptom disorder?
+
+
+Somatic symptom disorder is a complex illness that calls for consistent and reassuring relationships with confident and supportive healthcare providers. Often at the center is uncertainty and lack of trust in one’s own ability to tell the difference between normal bodily sensations and those that signal harm. It can be very challenging for individuals, family members and healthcare professionals alike to tell if new symptoms relate to a major illness or routine feelings of discomfort.
+
+Further complicating the picture is the fact that people with the disorder may have ongoing chronic illnesses that can change and worsen over time. The art of managing somatic symptom disorders is therefore balancing the need for a prudent medical evaluation without resulting in over-diagnosis and over-treatment. This balance can only be achieved through a trusting relationship with a knowledgeable clinician, usually a primary care provider or primary care team.
+
+Family members can assist an individual with somatic symptom disorders with ongoing support and understanding, and encouragement for the person to maintain stable and consistent healthcare relationships. Additionally, family members can help to follow treatment plans that aim to avoid urgent and emergent medical care settings in favor of outpatient appointments with a consistent provider. Family can also assist the person to track and record symptom information for later discussion with their provider. Family members can play a valuable role in reassurance and communicating with the person’s healthcare team.
+
+
+### My wife has been diagnosed with somatic symptom disorder. She continues to get angry with doctors and can’t accept that they can’t find anything physically wrong. She doesn’t want to consider that “it’s all in her head.” How can I get her to accept help?
+
+
+As mentioned above, the approach is balancing prudent medical investigations and treatments with over-diagnosis and treatment. The ultimate shared fear of patients and healthcare providers dealing with somatic symptom disorders is that the physicians have gotten it wrong – that a rare disease has been missed, which caused undue suffering and/or a risk of death. Put another way – that the person feels accused of the symptoms as being “all in their head” when, in fact, they weren’t “making it up.” Experienced clinicians reassure their patients that, though the tests run so far have been normal, the patient’s experience is valid. Framing normal lab tests as reassurance that nothing catastrophic is going on and highlighting the number of diagnoses that have been “ruled out” is important. The physicians caring for the patient need to continue to support and work with the patient to improve functionality and monitor symptoms for any change in quality or quantity warranting further investigation.
+
+It’s important to acknowledge the toll these symptoms can take in loss of functioning and to express empathy with the shared fear and confusion that inevitably occur with these disorders. Spouses and family members can take the same approach. Avoid direct confrontation about the truthfulness of the symptoms and help the person identify creative and practical solutions and coping strategies that can minimize the problems caused by the symptoms. Recognizing the emotional toll of feeling isolated through this process and encouraging attention to mental health concerns that could be framed as “side effects” of these symptoms may be a segue into more formal mental health treatments. Furthermore, spouses can help by doing their best to provide unconditional love and support.
+
+
+### Is somatic symptom disorder the same as being a hypochondriac?
+
+
+First – the term hypochondriac is a loaded term that rarely opens doors to quality conversations about what is going on and what problems are supposed to be fixed. Second – and to answer the question – No. Persons with illness anxiety disorder (newer term for ‘hypochondriasis’) do not usually complain of symptoms, but rather express an intense fear of becoming ill. Consequently, they focus on monitoring for the onset of a feared illness, or avoiding exposure to situations which could lead to illness.
+
+The term hypochondriac is pejorative and doesn’t help to start a meaningful conversation. People who are suffering and feeling accused won’t likely talk about what is going on and what problems can be resolved. People with illness anxiety disorder typically do not experience or complain about symptoms. They suffer from the fear of becoming ill. Consequently, they focus on monitoring for the onset of a feared illness, avoiding exposure to situations that could lead to illness. Interestingly, in some cases, people with illness anxiety disorder avoid getting regular medical care for fear of receiving a diagnosis. A person with illness anxiety disorder should be taken seriously, which can be difficult as others experience the person as having nothing wrong with them. Research on people with hypochondriasis indicates that they are at increased risk for self-harm and suicide. (1)
+
+Reference(1) Matalax-Cols D et al: All-Cause and Cause-Specific Mortality Among Individuals With Hypochondriasis. JAMA Psychiatry, JAMA Psychiatry. doi:10.1001/jamapsychiatry.2023.4744
+
+
+### My friend is perfectly healthy but constantly worries about being seriously ill. It is really disrupting her life and keeping her from being able to enjoy life. I’d like to encourage her to get help, what should I suggest?
+
+
+An approach to helping your friend is to engage her in a conversation expressing your concern that you feel as if you have lost a friend to this constant suffering. Avoid the pitfalls of sending an accidental message that it’s all “in her head” by suggesting they see a psychiatrist. Instead, find out what her needs are and help her to seek help and guidance within her own framework. When friends and family members are non-judgmental, expressing an attitude of acceptance and humility, that may allow the person suffering may start to gain to obtain insight into the emotional and social connections of their symptoms and fears. As a friend, your role is to be supportive; focus on getting your friendship back, not necessarily “fixing” her. When viewed under this light, offerings of assistance and advice can become more palatable. A clearer, more appropriate end-goal can be established – namely to regain your friendship.
+
+
+### I am constantly in pain, and have been to several doctors but they have not been able to identify anything. I feel like the doctor doesn’t believe that I’m really in pain. The pain is real and making my life difficult and miserable. What can I do?
+
+
+All pain is real, whether or not an “organic” cause of the pain can be identified. Modern medicine is not perfect and the science of today may not be able to define and classify some experiences people have including pain. Often, the approach physicians take is to first evaluate for potentially life-threatening conditions and then work down a list of known options by their clinical severity and relative ease of evaluation (expense and risk of invasiveness). This process can be unsatisfying for physicians and patients as there may be no clear etiology regarding the cause of the pain. When there is no “answer” the diagnostic process can sometimes put doctors at odds with their patients.
+
+It’s important to remember that all pain is contextual. A soldier in the heat of battle can suffer enormous tissue damage from a gunshot wound in the arm and barely feel anything while rescuing companions from danger. Once in the hospital, scared of what may happen, the pain may be experienced as overwhelming. Fear, anxiety and the meaning of the event that caused the pain can combine to influence the severity of pain and your reaction to the experience. The reaction to the pain can exacerbate the pain. When the soldier is tense during blood being drawn, fearing the pain of the needle, it becomes more difficult to get the blood sample. This in turn increases the sensation of pain and may result in multiple attempts to obtain the blood sample.
+
+We must also recall that a life without pain is not possible. We rely upon our inborn feedback mechanisms of pain, warning us of environmental dangers and potential injury. In essence, while we can’t survive without pain, for some people pain can become difficult to manage and overwhelming. It’s always prudent to properly investigate pain symptoms, and it can be difficult for patients with pain to know when they’ve had a proper investigation.
+
+Sometimes it’s reasonable to seek a second opinion to ensure that nothing has been missed. Finding trust in a professional takes time, and you should be transparent in your desire to seek a second opinion if you’re not satisfied with the first. Nevertheless, when multiple opinions are the same, you may find yourself in the very frustrating position of being at the limits of modern medicine to figure out what’s going on. In these cases, working as a therapist I try to focus on managing the pain while identifying common triggers and related factors that bring it on or make it worse. The goal is to improve the quality of life and gain the ability to cope with the pain in order to restore the person’s functioning in the world back. Nonpharmacological approaches including mindfulness, hypnosis, and breath technique have all been shown to be helpful. Accepting the pain and learning to master it is a goal to enable people to move on with their lives.
+
+It is important to talk to your doctor about your feelings of pain, your fear and your sense of helplessness. You may find that they feel the same way in their inability to identify and treat the cause of your discomfort. At times, medications can be helpful to treat other factors making the pain more severe, such as depression or anxiety. Some antidepressant medications are indicated for treatment to reduce symptoms of chronic neuropathic pain. Meeting with a therapist or counselor can help build coping skills and create methods to manage the pain so that it no longer creates suffering. Keeping busy with deliberate distractions can help alleviate the loneliness and slowness of time that comes from suffering with chronic pain. Knowing that you are not alone can help, millions of people suffer from chronic pain that is ill-defined. Seeking support and comfort from others undergoing similar experiences can help. Making your life the center of attention, not the pain, can aid in your ability to cope and reduce your suffering.
+
+
+### Philip R. Muskin, M.D., M.A., DLFAPA, LFACLP
+
+
+Professor of Psychiatry andSenior Consultant: Consultation-Liaison PsychiatryColumbia University Irving Medical Center

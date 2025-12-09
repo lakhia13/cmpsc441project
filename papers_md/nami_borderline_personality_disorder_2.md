@@ -1,0 +1,547 @@
+# Borderline Personality Disorder
+
+**Source:** NAMI
+**URL:** https://www.nami.org/About-Mental-Illness/Mental-Health-Conditions/Borderline-Personality-Disorder
+
+---
+
+- Find Your Local NAMI
+
+- About Mental IllnessAbout Mental IllnessWarning Signs and SymptomsMental Health ConditionsCommon with Mental IllnessTreatmentsMental Health By the NumbersResearch➜Explore the different options for supporting NAMI's mission.Call our HelpLine at800-950-6264, text 'NAMI' to62640, oremail. In a crisis,callortext988.Get Help ➜Your JourneyYour JourneyIndividuals with Mental IllnessFamily Members and CaregiversKids, Teens, and Young AdultsMaternal & New Parent Mental HealthVeterans & Active DutyIdentity and Cultural DimensionsFrontline Professionals➜Find out how you can be a NAMI HelpLine specialist.Call our HelpLine at800-950-6264, text 'NAMI' to62640, oremail. In a crisis,callortext988.Get Help ➜Support & EducationSupport & EducationMental Health EducationSupport GroupsNAMI HelpLinePublications & ReportsPodcasts and WebinarsVideo Resource LibraryJustice LibraryFind Your Local NAMI➜Find your closest NAMI State or Local Affiliate.Call our HelpLine at800-950-6264, text 'NAMI' to62640, oremail. In a crisis,callortext988.Get Help ➜Get InvolvedGet InvolvedDonate to NAMIFind a NAMIWalksAttend the NAMI National ConventionFundraise Your WayMemorial and Honorary GivingNAMI StigmaFreeAwareness EventsShare Your StoryPartner with UsNAMI on Campus➜Find out how you can be a NAMI HelpLine specialist.Call our HelpLine at800-950-6264, text 'NAMI' to62640, oremail. In a crisis,callortext988.Get Help ➜AdvocacyAdvocacyAdvocate for ChangePolicy PrioritiesNAMI Advocacy ActionsPolicy PlatformCrisis InterventionState Fact SheetsPublic Policy Reports➜Explore the different options for supporting NAMI's mission.Call our HelpLine at800-950-6264, text 'NAMI' to62640, oremail. In a crisis,callortext988.Get Help ➜Donate
+
+### About Mental Illness
+
+- Warning Signs and Symptoms
+
+- Mental Health Conditions
+
+- Common with Mental Illness
+
+- Mental Health By the Numbers
+
+Explore the different options for supporting NAMI's mission.
+
+Call our HelpLine at800-950-6264, text 'NAMI' to62640, oremail. In a crisis,callortext988.
+
+- Your JourneyYour JourneyIndividuals with Mental IllnessFamily Members and CaregiversKids, Teens, and Young AdultsMaternal & New Parent Mental HealthVeterans & Active DutyIdentity and Cultural DimensionsFrontline Professionals➜Find out how you can be a NAMI HelpLine specialist.Call our HelpLine at800-950-6264, text 'NAMI' to62640, oremail. In a crisis,callortext988.Get Help ➜Support & EducationSupport & EducationMental Health EducationSupport GroupsNAMI HelpLinePublications & ReportsPodcasts and WebinarsVideo Resource LibraryJustice LibraryFind Your Local NAMI➜Find your closest NAMI State or Local Affiliate.Call our HelpLine at800-950-6264, text 'NAMI' to62640, oremail. In a crisis,callortext988.Get Help ➜Get InvolvedGet InvolvedDonate to NAMIFind a NAMIWalksAttend the NAMI National ConventionFundraise Your WayMemorial and Honorary GivingNAMI StigmaFreeAwareness EventsShare Your StoryPartner with UsNAMI on Campus➜Find out how you can be a NAMI HelpLine specialist.Call our HelpLine at800-950-6264, text 'NAMI' to62640, oremail. In a crisis,callortext988.Get Help ➜AdvocacyAdvocacyAdvocate for ChangePolicy PrioritiesNAMI Advocacy ActionsPolicy PlatformCrisis InterventionState Fact SheetsPublic Policy Reports➜Explore the different options for supporting NAMI's mission.Call our HelpLine at800-950-6264, text 'NAMI' to62640, oremail. In a crisis,callortext988.Get Help ➜Donate
+
+- Individuals with Mental Illness
+
+- Family Members and Caregivers
+
+- Kids, Teens, and Young Adults
+
+- Maternal & New Parent Mental Health
+
+- Veterans & Active Duty
+
+- Identity and Cultural Dimensions
+
+- Frontline Professionals
+
+Find out how you can be a NAMI HelpLine specialist.
+
+Call our HelpLine at800-950-6264, text 'NAMI' to62640, oremail. In a crisis,callortext988.
+
+- Support & EducationSupport & EducationMental Health EducationSupport GroupsNAMI HelpLinePublications & ReportsPodcasts and WebinarsVideo Resource LibraryJustice LibraryFind Your Local NAMI➜Find your closest NAMI State or Local Affiliate.Call our HelpLine at800-950-6264, text 'NAMI' to62640, oremail. In a crisis,callortext988.Get Help ➜Get InvolvedGet InvolvedDonate to NAMIFind a NAMIWalksAttend the NAMI National ConventionFundraise Your WayMemorial and Honorary GivingNAMI StigmaFreeAwareness EventsShare Your StoryPartner with UsNAMI on Campus➜Find out how you can be a NAMI HelpLine specialist.Call our HelpLine at800-950-6264, text 'NAMI' to62640, oremail. In a crisis,callortext988.Get Help ➜AdvocacyAdvocacyAdvocate for ChangePolicy PrioritiesNAMI Advocacy ActionsPolicy PlatformCrisis InterventionState Fact SheetsPublic Policy Reports➜Explore the different options for supporting NAMI's mission.Call our HelpLine at800-950-6264, text 'NAMI' to62640, oremail. In a crisis,callortext988.Get Help ➜Donate
+
+### Support & Education
+
+- Mental Health Education
+
+- Publications & Reports
+
+- Podcasts and Webinars
+
+- Video Resource Library
+
+- Justice Library
+
+- Find Your Local NAMI
+
+Find your closest NAMI State or Local Affiliate.
+
+Call our HelpLine at800-950-6264, text 'NAMI' to62640, oremail. In a crisis,callortext988.
+
+- Get InvolvedGet InvolvedDonate to NAMIFind a NAMIWalksAttend the NAMI National ConventionFundraise Your WayMemorial and Honorary GivingNAMI StigmaFreeAwareness EventsShare Your StoryPartner with UsNAMI on Campus➜Find out how you can be a NAMI HelpLine specialist.Call our HelpLine at800-950-6264, text 'NAMI' to62640, oremail. In a crisis,callortext988.Get Help ➜AdvocacyAdvocacyAdvocate for ChangePolicy PrioritiesNAMI Advocacy ActionsPolicy PlatformCrisis InterventionState Fact SheetsPublic Policy Reports➜Explore the different options for supporting NAMI's mission.Call our HelpLine at800-950-6264, text 'NAMI' to62640, oremail. In a crisis,callortext988.Get Help ➜Donate
+
+- Find a NAMIWalks
+
+- Attend the NAMI National Convention
+
+- Fundraise Your Way
+
+- Memorial and Honorary Giving
+
+- NAMI StigmaFree
+
+- Awareness Events
+
+- Share Your Story
+
+- Partner with Us
+
+Find out how you can be a NAMI HelpLine specialist.
+
+Call our HelpLine at800-950-6264, text 'NAMI' to62640, oremail. In a crisis,callortext988.
+
+- AdvocacyAdvocacyAdvocate for ChangePolicy PrioritiesNAMI Advocacy ActionsPolicy PlatformCrisis InterventionState Fact SheetsPublic Policy Reports➜Explore the different options for supporting NAMI's mission.Call our HelpLine at800-950-6264, text 'NAMI' to62640, oremail. In a crisis,callortext988.Get Help ➜
+
+- Advocate for Change
+
+- Policy Priorities
+
+- NAMI Advocacy Actions
+
+- Policy Platform
+
+- Crisis Intervention
+
+- State Fact Sheets
+
+- Public Policy Reports
+
+Explore the different options for supporting NAMI's mission.
+
+Call our HelpLine at800-950-6264, text 'NAMI' to62640, oremail. In a crisis,callortext988.
+
+- Warning Signs and Symptoms
+
+- Mental Health Conditions
+
+- Common with Mental Illness
+
+- Mental Health By the Numbers
+
+- Individuals with Mental Illness
+
+- Family Members and Caregivers
+
+- Kids, Teens, and Young Adults
+
+- Maternal & New Parent Mental Health
+
+- Veterans & Active Duty
+
+- Identity and Cultural Dimensions
+
+- Frontline Professionals
+
+- Mental Health Education
+
+- Publications & Reports
+
+- Podcasts and Webinars
+
+- Video Resource Library
+
+- Justice Library
+
+- Find Your Local NAMI
+
+- Find a NAMIWalks
+
+- Attend the NAMI National Convention
+
+- Fundraise Your Way
+
+- Memorial and Honorary Giving
+
+- NAMI StigmaFree
+
+- Awareness Events
+
+- Share Your Story
+
+- Partner with Us
+
+- Advocate for Change
+
+- Policy Priorities
+
+- NAMI Advocacy Actions
+
+- Policy Platform
+
+- Crisis Intervention
+
+- State Fact Sheets
+
+- Public Policy Reports
+
+- National Alliance on Mental Illness (NAMI)
+
+- About Mental Illness
+
+- Mental Health Conditions
+
+- Borderline Personality Disorder
+
+Borderline Personality Disorder (BPD) is a condition characterized by difficulties regulating emotion. This means that people who experience BPD feel emotions intensely and for extended periods of time, and it is harder for them to return to a stable baseline after an emotionally triggering event.
+
+This difficulty can lead to impulsivity, poor self-image, stormy relationships and intense emotional responses to stressors. Struggling with self-regulation can also result in dangerous behaviors such as self-harm (e.g. cutting).
+
+It’s estimated that1.4%of the adult U.S. population experiences BPD. Nearly 75% of people diagnosed with BPD are women. Recent research suggests that men may be equally affected by BPD, but are commonly misdiagnosed with PTSD or depression.
+
+People with BPD experience wide mood swings and can feel a great sense of instability and insecurity. According to the Diagnostic and Statistical Manual diagnostic framework, some key signs and symptoms may include:
+
+- Frantic efforts to avoid real or imagined abandonment by friends and family.
+
+- Unstable personal relationships that alternate between idealization (“I’m so in love!”) and devaluation (“I hate her”). This is also sometimes known as “splitting.”
+
+- Distorted and unstable self-image, which affects moods, values, opinions, goals and relationships.
+
+- Impulsive behaviors that can have dangerous outcomes, such as excessive spending, unsafe sex, reckless driving, or misuse or overuse of substances.
+
+- Self-harming behavior including suicidal threats or attempts.
+
+- Periods of intense depressed mood, irritability or anxiety lasting a few hours to a few days.
+
+- Chronic feelings of boredom or emptiness.
+
+- Inappropriate, intense or uncontrollable anger—often followed by shame and guilt.
+
+- Dissociative feelings—disconnecting from your thoughts or sense of identity or “out of body” type of feelings—and stress-related paranoid thoughts. Severe cases of stress can also lead to brief psychotic episodes.
+
+The causes of BPD are not fully understood, but scientists agree that it is the result of a combination of factors, including:
+
+- Genetics.While no specific gene or gene profile has been shown to directly cause BPD, research suggests that people who have a close family member with BPD may be at a higher risk of developing the disorder.
+
+- Environmental factors.People who experience traumatic life events—such as physical or sexual abuse during childhood or neglect and separation from parents—are at increased risk of developing BPD.
+
+- Brain function.The emotional regulation system may be different in people with BPD, suggesting that there is a neurological basis for some of the symptoms. Specifically, the portions of the brain that control emotions and decision-making/judgment may not communicate optimally with one another.
+
+There is no definitive medical test to diagnose BPD, and a diagnosis is not based on one specific sign or symptom. BPD is best diagnosed by a mental health professional following a comprehensive clinical interview that may include talking with previous clinicians, reviewing previous medical evaluations and, when appropriate, interviews with friends and family.
+
+An effective treatment plan should include your preferences while also addressing any other co-existing conditions you may have. Examples of treatment options include psychotherapy; medications; and group, peer and family support. The overarching goal of treatment is for a person with BPD to increasingly self-direct their own treatment plan as they learn what works and what doesn’t.
+
+- Psychotherapy—such as dialectical behavioral therapy (DBT), cognitive behavioral therapy (CBT) and psychodynamic psychotherapy—is the first line of choice for BPD. Learning ways to cope with emotional dysregulation in a therapeutic setting is often the key to long-term improvement for those experiencing BPD.
+
+- Medicationsmay be instrumental to a treatment plan, but there is no one medication specifically made to treat the core symptoms of BPD. Rather, several medications can be used off-label to treat various symptoms. For example, mood stabilizers and antidepressants help with mood swings and dysphoria. And for some, low-dose antipsychotic medication may help control symptoms such as disorganized thinking.
+
+- Short-term hospitalizationmay be necessary during times of extreme stress, and/or impulsive or suicidal behavior to ensure safety.
+
+## Related Conditions
+
+BPD can be difficult to diagnose and treat, and successful treatment includes addressing any other conditions a person might have. Many with BPD also experience additional conditions like:
+
+- Anxiety Disorders
+
+- Posttraumatic Stress Disorder
+
+- Bipolar Disorder
+
+- Eating Disorders(notably bulimia nervosa)
+
+- Substance Use Disorders /Dual Diagnosis
+
+Published April 2023
+
+There are good long-term outcomes for people experiencing BPD who engage in a comprehensive treatment plan. Most experience the best results using a combination of psychotherapy, peer and family support and medications (when indicated) to address their symptoms. People with BPD often have other co-occurring conditions and their treatment plan should address these as well.
+
+Work with your treatment team to understand the risks and benefits of each of these individual courses of action as well as how they work with each other.
+
+Psychotherapyis considered the cornerstone for treating BPD because it aims to address the emotional dysregulation associated with the condition. A hallmark of effective treatment is learning to master dysregulation with coping skills, insight and acceptance. There are several types of psychotherapy that have shown to be effective in doing this:
+
+- Dialectical behavioral therapy (DBT)focuses on teaching coping skills to combat counterproductive urges, regulate emotions and improve relationships. Involving individual and group work, DBT encourages practicing mindfulness techniques such as meditation, regulated breathing and self-soothing. DBT has been shown to be effective in reducing suicidal behavior, psychiatric hospitalization, treatment dropout, substance use, anger and interpersonal difficulties.Learn more about DBT.
+
+- Cognitive behavioral therapy (CBT)helps address the negative thinking and behaviors associated with BPD. The goal of this therapy is to recognize negative thoughts and learn effective coping strategies.
+
+- Mentalization-based therapy (MBT)teaches people how to become conscious of their internal states and how to develop empathy for other people’s experiences. This treatment is also used to explore emotions and develop alternative explanations for negative interactions with others.
+
+There is no singularmedicationdesigned to specifically treat the core symptoms of BPD. Medications can be useful in treating certain symptoms associated with BPD, such as depression and anxiety. They can also be used to help increase a person’s ability to engage in psychotherapy.
+
+While most people can live in the community during their treatment (outpatient), higher levels of care may be useful at moments when more intensive clinical support is needed. For example, a hospital inpatient unit can provide a safe environment for a person with BPD who is actively suicidal.
+
+In the DBT framework, the goal is usually to learn coping skills while in the community; it is not organized around inpatient care. Though, there are some facilities that have a DBT track in inpatient-partial hospital program, which is a model where you sleep at home and attend during the day. It’s important to determine the level of care you or your loved one might require before engaging in (and throughout the duration of) treatment.
+
+Published April 2023
+
+Coping with BPD can be very challenging. But if you, a family member or friend is struggling, there is help. NAMI is here to provide you with support and information about community resources for you and your family.
+
+Contact the NAMI HelpLine at 800-950-NAMI (6264) or[email protected]with any questions you may have about BPD.
+
+## Helping Yourself
+
+Although you may recognize that your behaviors are destructive, it may still be difficult to control them.Effective treatmentcan help you. Here are some other ways to help manage your condition:
+
+- Connect with others.Find emotional support from others experiencing BPD. It’s helpful to share your thoughts, fears and questions with others who have the same condition. Use online message boards or groups found through social sites like meetup.com or Facebook. We also like the peer-hosted chat room atHealing From BPD.
+
+- Take care of your body.Eat well and exercise. To relieve stress, try activities like meditation, yoga or Tai Chi.
+
+- Avoid drugs and alcohol.These substances can disturb emotional balance and interact with medications.
+
+Learn more aboutmanaging your mental health and finding supportwhile living with mental illness.
+
+## Helping A Family Member Or Friend
+
+The support of family and friends is critical in the treatment of BPD, as many people with this condition may isolate themselves from relationships—even when they need them most.
+
+- Look for warning signs.BPD often presents in erratic behavior, like shopping sprees, sexual or substance binges and fighting/arguing. If your loved one is open to it, discuss their behaviors with them, so they can recognize the signs early.
+
+- Encourage treatment.Family and friends can be helpful in encouraging someone to begin and engage in proper treatment for this complicated and frustrating illness.
+
+- Understand treatment.If your loved one is in a skills-based approach like DBT, learn the language of this treatment and use it to help provide support.
+
+- Speak honestly and kindly.Don’t ridicule your friend of family member for failing to be in control or making bad choices. Instead, make specific offers of help and follow through. Tell the person you care about him/her. Ask how they’re feeling.
+
+- React calmly.Even if your family member or friend is in crisis, it’s important to remain calm. Listen and make them feel understood, then take the next step toward getting help.
+
+Find out more abouttaking care of your family member or friend(without forgetting about yourself!).
+
+Published April 2023
+
+### Related blog posts
+
+- Developing Strategies and Finding Community: My Experience in Support Groups
+
+- Finding Mental Health Support After Leaving My Hasidic Community
+
+- Facing the Aftermath of Abuse: My Ongoing Journey Towards Healing
+
+- Warning Signs and Symptoms
+
+- Mental Health ConditionsAnxiety DisordersAttention Deficit Hyperactivity Disorder (ADHD)Bipolar DisorderBorderline Personality DisorderMajor Depressive DisorderMajor Depressive Disorder with a Seasonal PatternMajor Depressive Disorder with Peripartum OnsetDissociative DisordersEating DisordersObsessive-compulsive DisorderPosttraumatic Stress DisorderPsychosisSchizoaffective DisorderSchizophrenia
+
+- Anxiety Disorders
+
+- Attention Deficit Hyperactivity Disorder (ADHD)
+
+- Bipolar Disorder
+
+- Borderline Personality Disorder
+
+- Major Depressive DisorderMajor Depressive Disorder with a Seasonal PatternMajor Depressive Disorder with Peripartum Onset
+
+- Major Depressive Disorder with a Seasonal Pattern
+
+- Major Depressive Disorder with Peripartum Onset
+
+- Dissociative Disorders
+
+- Eating Disorders
+
+- Obsessive-compulsive Disorder
+
+- Posttraumatic Stress Disorder
+
+- Schizoaffective Disorder
+
+- Common with Mental IllnessAnosognosiaAutismRisk of SuicideSelf-harmSleep DisordersSmokingInfographics & ResourcesSubstance Use Disorders
+
+- Risk of Suicide
+
+- Sleep Disorders
+
+- SmokingInfographics & Resources
+
+- Infographics & Resources
+
+- Substance Use Disorders
+
+- TreatmentsTypes of Mental Health ProfessionalsPsychotherapyGetting Treatment During a CrisisTreatment SettingsMental Health MedicationsCannabidiol (CBD) ProductsConsiderations for Special GroupsCost of MedicationsGeneric MedicationsGlitchy Genes and Psychiatry: The Impact of DNA On Medication TherapyLong-Acting Injectables (LAIs)Maternal Mental HealthMedication AdherenceMedication-Induced Sexual DysfunctionMedication FAQMetabolic Side Effects of Psychiatric MedicationsOff-Label Usage of MedicationsPharmacogenomic TestingRisks of BenzodiazepinesSelecting MedicationsStopping MedicationsSuicide Warnings on MedicationsTardive DyskinesiaTreatment-Resistant DepressionTypes of MedicationAcamprosateAlprazolam (Xanax)Amphetamine (Adderall)Aripiprazole (Abilify)Asenapine (Saphris)Atomoxetine (Strattera)Brexpiprazole (Rexulti)Buprenorphine (Sublocade)Buprenorphine/Naloxone (Suboxone)Bupropion (Wellbutrin)BuspironeCarbamazepine (Tegretol)Cariprazine (Vraylar)Citalopram (Celexa)Clonazepam (Klonopin)Clonidine (Catapres and Kapvay)Clozapine (Clozaril and Versacloz)Desvenlafaxine (Pristiq)Deutetrabenazine (Austedo)Dexmedetomidine (IGALMI)Dextromethorphan and Bupropion (Auvelity)Diazepam (Valium)DisulfiramDuloxetine (Cymbalta)Escitalopram (Lexapro)Esketamine (Spravato)Fluoxetine (Prozac)FluphenazineFluvoxamineGuanfacine (Intuniv)Haloperidol (Haldol)Hydroxyzine (Vistaril)Iloperidone (Fanapt)Lamotrigine (Lamictal)Levomilnacipran (Fetzima)LithiumLofexidine (Lucemyra)Lorazepam (Ativan)Loxapine (Adasuve)Lumateperone (Caplyta)Lurasidone (Latuda)MethadoneMethylphenidate or Dexmethylphenidate (Concerta, Ritalin and others)Mirtazapine (Remeron)Naloxone (Narcan)Naltrexone (Vivitrol)Olanzapine (Zyprexa)Olanzapine/Samidorphan (Lybalvi)Oxcarbazepine (Trileptal)Paliperidone (Invega)Paroxetine (Paxil)Phenelzine (Nardil)Pimavanserin (Nuplazid)Quetiapine (Seroquel)Risperidone (Risperdal)Sertraline (Zoloft)Topiramate (Topamax)Tranylcypromine (Parnate)Valbenazine (Ingrezza)Valproate (Depakote)Venlafaxine (Effexor)Vilazodone (Viibryd)Viloxazine (Qelbree)Vortioxetine (Trintellix)Xanomeline and Trospium (Cobenfy)Ziprasidone (Geodon)Zuranolone (Zurzuvae)What to Avoid with Psychiatric MedicationsWhat to Expect From Your MedicationsPsychosocial TreatmentsComplementary Health ApproachesECT, TMS and Other Brain Stimulation Therapies
+
+- Types of Mental Health Professionals
+
+- Getting Treatment During a Crisis
+
+- Treatment Settings
+
+- Mental Health MedicationsCannabidiol (CBD) ProductsConsiderations for Special GroupsCost of MedicationsGeneric MedicationsGlitchy Genes and Psychiatry: The Impact of DNA On Medication TherapyLong-Acting Injectables (LAIs)Maternal Mental HealthMedication AdherenceMedication-Induced Sexual DysfunctionMedication FAQMetabolic Side Effects of Psychiatric MedicationsOff-Label Usage of MedicationsPharmacogenomic TestingRisks of BenzodiazepinesSelecting MedicationsStopping MedicationsSuicide Warnings on MedicationsTardive DyskinesiaTreatment-Resistant DepressionTypes of MedicationAcamprosateAlprazolam (Xanax)Amphetamine (Adderall)Aripiprazole (Abilify)Asenapine (Saphris)Atomoxetine (Strattera)Brexpiprazole (Rexulti)Buprenorphine (Sublocade)Buprenorphine/Naloxone (Suboxone)Bupropion (Wellbutrin)BuspironeCarbamazepine (Tegretol)Cariprazine (Vraylar)Citalopram (Celexa)Clonazepam (Klonopin)Clonidine (Catapres and Kapvay)Clozapine (Clozaril and Versacloz)Desvenlafaxine (Pristiq)Deutetrabenazine (Austedo)Dexmedetomidine (IGALMI)Dextromethorphan and Bupropion (Auvelity)Diazepam (Valium)DisulfiramDuloxetine (Cymbalta)Escitalopram (Lexapro)Esketamine (Spravato)Fluoxetine (Prozac)FluphenazineFluvoxamineGuanfacine (Intuniv)Haloperidol (Haldol)Hydroxyzine (Vistaril)Iloperidone (Fanapt)Lamotrigine (Lamictal)Levomilnacipran (Fetzima)LithiumLofexidine (Lucemyra)Lorazepam (Ativan)Loxapine (Adasuve)Lumateperone (Caplyta)Lurasidone (Latuda)MethadoneMethylphenidate or Dexmethylphenidate (Concerta, Ritalin and others)Mirtazapine (Remeron)Naloxone (Narcan)Naltrexone (Vivitrol)Olanzapine (Zyprexa)Olanzapine/Samidorphan (Lybalvi)Oxcarbazepine (Trileptal)Paliperidone (Invega)Paroxetine (Paxil)Phenelzine (Nardil)Pimavanserin (Nuplazid)Quetiapine (Seroquel)Risperidone (Risperdal)Sertraline (Zoloft)Topiramate (Topamax)Tranylcypromine (Parnate)Valbenazine (Ingrezza)Valproate (Depakote)Venlafaxine (Effexor)Vilazodone (Viibryd)Viloxazine (Qelbree)Vortioxetine (Trintellix)Xanomeline and Trospium (Cobenfy)Ziprasidone (Geodon)Zuranolone (Zurzuvae)What to Avoid with Psychiatric MedicationsWhat to Expect From Your Medications
+
+- Cannabidiol (CBD) Products
+
+- Considerations for Special Groups
+
+- Cost of Medications
+
+- Generic Medications
+
+- Glitchy Genes and Psychiatry: The Impact of DNA On Medication Therapy
+
+- Long-Acting Injectables (LAIs)
+
+- Maternal Mental Health
+
+- Medication Adherence
+
+- Medication-Induced Sexual Dysfunction
+
+- Metabolic Side Effects of Psychiatric Medications
+
+- Off-Label Usage of Medications
+
+- Pharmacogenomic Testing
+
+- Risks of Benzodiazepines
+
+- Selecting Medications
+
+- Stopping Medications
+
+- Suicide Warnings on Medications
+
+- Tardive Dyskinesia
+
+- Treatment-Resistant Depression
+
+- Types of MedicationAcamprosateAlprazolam (Xanax)Amphetamine (Adderall)Aripiprazole (Abilify)Asenapine (Saphris)Atomoxetine (Strattera)Brexpiprazole (Rexulti)Buprenorphine (Sublocade)Buprenorphine/Naloxone (Suboxone)Bupropion (Wellbutrin)BuspironeCarbamazepine (Tegretol)Cariprazine (Vraylar)Citalopram (Celexa)Clonazepam (Klonopin)Clonidine (Catapres and Kapvay)Clozapine (Clozaril and Versacloz)Desvenlafaxine (Pristiq)Deutetrabenazine (Austedo)Dexmedetomidine (IGALMI)Dextromethorphan and Bupropion (Auvelity)Diazepam (Valium)DisulfiramDuloxetine (Cymbalta)Escitalopram (Lexapro)Esketamine (Spravato)Fluoxetine (Prozac)FluphenazineFluvoxamineGuanfacine (Intuniv)Haloperidol (Haldol)Hydroxyzine (Vistaril)Iloperidone (Fanapt)Lamotrigine (Lamictal)Levomilnacipran (Fetzima)LithiumLofexidine (Lucemyra)Lorazepam (Ativan)Loxapine (Adasuve)Lumateperone (Caplyta)Lurasidone (Latuda)MethadoneMethylphenidate or Dexmethylphenidate (Concerta, Ritalin and others)Mirtazapine (Remeron)Naloxone (Narcan)Naltrexone (Vivitrol)Olanzapine (Zyprexa)Olanzapine/Samidorphan (Lybalvi)Oxcarbazepine (Trileptal)Paliperidone (Invega)Paroxetine (Paxil)Phenelzine (Nardil)Pimavanserin (Nuplazid)Quetiapine (Seroquel)Risperidone (Risperdal)Sertraline (Zoloft)Topiramate (Topamax)Tranylcypromine (Parnate)Valbenazine (Ingrezza)Valproate (Depakote)Venlafaxine (Effexor)Vilazodone (Viibryd)Viloxazine (Qelbree)Vortioxetine (Trintellix)Xanomeline and Trospium (Cobenfy)Ziprasidone (Geodon)Zuranolone (Zurzuvae)
+
+- Alprazolam (Xanax)
+
+- Amphetamine (Adderall)
+
+- Aripiprazole (Abilify)
+
+- Asenapine (Saphris)
+
+- Atomoxetine (Strattera)
+
+- Brexpiprazole (Rexulti)
+
+- Buprenorphine (Sublocade)
+
+- Buprenorphine/Naloxone (Suboxone)
+
+- Bupropion (Wellbutrin)
+
+- Carbamazepine (Tegretol)
+
+- Cariprazine (Vraylar)
+
+- Citalopram (Celexa)
+
+- Clonazepam (Klonopin)
+
+- Clonidine (Catapres and Kapvay)
+
+- Clozapine (Clozaril and Versacloz)
+
+- Desvenlafaxine (Pristiq)
+
+- Deutetrabenazine (Austedo)
+
+- Dexmedetomidine (IGALMI)
+
+- Dextromethorphan and Bupropion (Auvelity)
+
+- Diazepam (Valium)
+
+- Duloxetine (Cymbalta)
+
+- Escitalopram (Lexapro)
+
+- Esketamine (Spravato)
+
+- Fluoxetine (Prozac)
+
+- Guanfacine (Intuniv)
+
+- Haloperidol (Haldol)
+
+- Hydroxyzine (Vistaril)
+
+- Iloperidone (Fanapt)
+
+- Lamotrigine (Lamictal)
+
+- Levomilnacipran (Fetzima)
+
+- Lofexidine (Lucemyra)
+
+- Lorazepam (Ativan)
+
+- Loxapine (Adasuve)
+
+- Lumateperone (Caplyta)
+
+- Lurasidone (Latuda)
+
+- Methylphenidate or Dexmethylphenidate (Concerta, Ritalin and others)
+
+- Mirtazapine (Remeron)
+
+- Naloxone (Narcan)
+
+- Naltrexone (Vivitrol)
+
+- Olanzapine (Zyprexa)
+
+- Olanzapine/Samidorphan (Lybalvi)
+
+- Oxcarbazepine (Trileptal)
+
+- Paliperidone (Invega)
+
+- Paroxetine (Paxil)
+
+- Phenelzine (Nardil)
+
+- Pimavanserin (Nuplazid)
+
+- Quetiapine (Seroquel)
+
+- Risperidone (Risperdal)
+
+- Sertraline (Zoloft)
+
+- Topiramate (Topamax)
+
+- Tranylcypromine (Parnate)
+
+- Valbenazine (Ingrezza)
+
+- Valproate (Depakote)
+
+- Venlafaxine (Effexor)
+
+- Vilazodone (Viibryd)
+
+- Viloxazine (Qelbree)
+
+- Vortioxetine (Trintellix)
+
+- Xanomeline and Trospium (Cobenfy)
+
+- Ziprasidone (Geodon)
+
+- Zuranolone (Zurzuvae)
+
+- What to Avoid with Psychiatric Medications
+
+- What to Expect From Your Medications
+
+- Psychosocial Treatments
+
+- Complementary Health Approaches
+
+- ECT, TMS and Other Brain Stimulation Therapies
+
+- Mental Health By the NumbersInfographics & Fact Sheets
+
+- Infographics & Fact Sheets
+
+- ResearchResearch News2024202320222021202020192018Research at NAMI NationalResearch on NAMI ProgramsParticipating in ResearchPast Work and Publications
+
+- Research News2024202320222021202020192018
+
+- Research at NAMI National
+
+- Research on NAMI Programs
+
+- Participating in Research
+
+- Past Work and Publications
+
+Know the warning signs of mental illness
+
+Learn more about common mental health conditions
+
+NAMI HelpLine is available M-F, 10 a.m. – 10 p.m. ET. Call800-950-6264,text “NAMI” to62640, oremail. In a crisis,callortext988 (24/7).
+
+Copyright 
+Messages and data rates may apply. Message frequency varies. Reply STOP to opt out. Reply HELP for help. See ourTerms of Service and for more information.
+
+The following are trademarks of NAMI: NAMI, NAMI Basics, NAMI Connection, NAMI Ending the Silence, NAMI FaithNet, NAMI Family & Friends, NAMI Family Support Group, NAMI Family-to-Family, NAMI Grading the States, NAMI Hearts & Minds, NAMI Homefront, NAMI HelpLine, NAMI In Our Own Voice, NAMI On Campus, NAMI Parents & Teachers as Allies, NAMI Peer-to-Peer, NAMI Provider, NAMI Smarts for Advocacy, Act4MentalHealth, Vote4MentalHealth, NAMIWalks and National Alliance on Mental Illness. All other programs and services are trademarks of their respective owners.
+
+NAMI is a 501(c)(3) nonprofit (EIN 43-1201653).

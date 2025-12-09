@@ -1,0 +1,154 @@
+# BPD
+
+Source: WebMD
+URL: https://www.webmd.com/mental-health/borderline-personality-disorder
+
+
+## What Is Borderline Personality Disorder?
+
+
+Borderline personality disorder (BPD) is amental healthcondition where you struggle to control your emotions. It causes you to see yourself in a negative way, makerashdecisions, have extrememood swings, and act in ways that push others away.
+
+Psychotherapy is the most often recommended treatment for borderline personality disorder.
+
+
+## What Causes Borderline Personality Disorder?
+
+
+Borderline personality disorder can be passed down through your genes or caused by chemical changes in the brain.
+
+You have a higher risk for BPD if you experienced childhood abuse, neglect, or trauma.Â
+
+
+## Borderline Personality Disorder Symptoms
+
+
+A person living with BPD will experience at least five of these symptoms over time:
+
+- Intense mood swings that last hours or days
+
+- A strong fear of abandonment
+
+- A pattern of unstable, intense relationships
+
+- Extreme anger or trouble controlling anger
+
+- Constant feelings of emptiness
+
+- A shifting sense of self-worth
+
+- Suicide attempts or acts of self-harm, such as cutting
+
+- Substance abuse
+
+- Destructive behaviors, such as reckless driving or spending
+
+âOften, BPD is misunderstood and stigmatized because it presents as relational instability, push-pull behaviors, and intense emotional reactions,â says Victoria Grinman, PhD, apsychotherapistand counselor who specializes in posttraumatic growth, neurodiversity, and relational wellness.
+
+âBut beneath the surface, BPD is fundamentally about deep insecurity, a heightened fear of abandonment, and a profound struggle with self-worth.â
+
+
+## Types of Borderline Personality Disorder
+
+
+There are four types of borderline personality disorder:
+
+Impulsive BPD.You act without thinking. Examples include overeating, overspending, breaking things, and getting into fights.
+
+Discouraged BPD.ÂYou have a strong fear of being abandoned and may keep your feelings bottled up. You may also beclingy, harm yourself, or think about suicide.
+
+Self-destructive BPD.Â You practice self-hate and self-harm (cutting or burning).
+
+Petulant BPD.You have strong mood swings and feelings of being unworthy or unloved. You may be easily irritated or manipulative.
+
+
+## How Is Borderline Personality Disorder Diagnosed?
+
+
+Your doctor may use several tools to see if you have BPD, including:
+
+- A detailed interview with you
+
+- A mental health exam where you answer several questions
+
+- Your medical history and an exam
+
+- A discussion about your symptoms
+
+
+## Borderline Personality Disorder Treatment
+
+
+Psychotherapy is the most often recommended treatment for BPD.
+
+One type âdialectical behavior therapyâ helps people living with BPD learn how to balance their emotions and logic. It focuses on mindfulness, dealing with feelings that cause distress, and having effective relationships with others.
+
+While medication can help manage some of the BPD symptoms, such as anxiety ordepression, itâs not part of frontline treatment.
+
+âThe true pain and dysfunction often stem from relational trauma, meaning that healing typically requires relationally based therapeutic work,â says Grinman. âAs I say, when trauma is born in relationship, it is healed in relationship, too.â
+
+
+## Living With Borderline Personality Disorder
+
+
+With treatment, you can control your symptoms and live a full life. Here are some ways to manage BPD:
+
+- Keep all scheduled appointments with your therapist.
+
+- Get enough sleep.
+
+- Eat a healthydiet.
+
+- Exercise for at least 30 minutes each day.
+
+- Pay attention to people or things that trigger you.
+
+- Talk to your doctor if you have thoughts of hurting yourself.
+
+
+## How to Support a Loved One With Borderline Personality Disorder
+
+
+Grinman says that to support a loved one living with BPD, it is important to have compassion for the emotional struggles behind their behaviors, such as an intense fear of abandonment.
+
+She offers these tips on how you can show your support:
+
+- Take care of your own emotional health.
+
+- Acknowledge your loved oneâs feelings without agreeing with their behaviors.
+
+- Set clear, kind boundaries.
+
+- Expect emotional outbursts, but make room for repair.
+
+- Encourage them to get professional help.
+
+Borderline personality disorder is a mental condition where a person has an intense fear of abandonment and a constant struggle with self-worth. Itâs marked by intense mood swings, unstable emotions, and sometimes careless behavior or self-harm. It is treatable with therapy, and many people who seek and stick with treatment are able to live full, productive lives.
+
+
+## Borderline Personality Disorder FAQs
+
+
+
+### Can people with BPD live a normal life?
+
+
+Yes. With treatment, many people with this condition can live productive lives.
+
+
+### Who does borderline personality disorder affect?
+
+
+Symptoms of borderline personality disorder typically start during the teen years, but anyone can develop this mental health condition, especially if they:
+
+- Have a family history of BPD
+
+- Deal with anxiety, depression, oreating disorders
+
+- Lived with abuse, neglect, or trauma as a child
+
+
+### How common is borderline personality disorder?
+
+
+Itâs rare, affecting less than 2% of people in the U.S.

@@ -1,0 +1,180 @@
+# Disaster Preparedness
+
+Source: SAMHSA
+URL: https://www.samhsa.gov/disaster-preparedness
+
+- What is Mental Health
+
+- 988 Suicide & Crisis Lifeline
+
+- Children and Families
+
+- Serious Mental Illness
+
+- Trauma and Violence
+
+- Suicide and Suicidal Behavior
+
+- Disaster Preparedness, Response, Recovery, and MitigationEmergency Response GrantsCoping Tips for Traumatic Events and DisastersTypes of DisastersAt-Risk PopulationsWarning Signs and Risk Factors
+
+- Emergency Response Grants
+
+- Coping Tips for Traumatic Events and Disasters
+
+- Types of Disasters
+
+- At-Risk Populations
+
+- Warning Signs and Risk Factors
+
+- Recovery and Recovery Support
+
+- ¿Qué es la salud mental?
+
+- National Behavioral Health Crisis Care Guidance
+
+Learn about SAMHSA's Trauma and Disaster Behavioral Health programs.
+
+What is Disaster Behavioral Health (DBH)?
+
+SAMHSA defines disaster behavioral health (DBH) as the understanding and provision of mental, emotional, and substance use services and interventions for persons and communities impacted by disasters. DBH encompasses the delivery of behavioral health and stress management interventions to address and promote mental health, reduce substance misuse, and foster resilience and recovery.
+
+Please emailSAMHSA-DBH@samhsa.hhs.govfor DBH related questions.
+
+SAMHSA provides disaster behavioral health (DBH) expertise and coordination that supports state, local, tribal, territorial, federal partners, and other stakeholders (e.g., communities, non-governmental organizations) as they prepare for, respond to, recover from, and mitigate the behavioral health effects of a range of hazards from weather-related or environmental disasters to public health, extreme heat, and other climate-related emergencies.
+
+SAMHSA supports disaster preparedness, response, recovery, and mitigation of disasters focused on resilience building through each component.
+
+SAMHSA facilitates growing knowledge in fields of trauma and DBH and wider topics such as the interaction between social determinants of health and disaster resilience, through the following:
+
+- Partnering with governmental and non-governmental partners to support integration of DBH across all aspects of disaster mitigation, preparedness, response, and recovery;
+
+- Facilitating inclusion of at-risk populations such as people with chronic behavioral health conditions in all aspects of disaster and emergency management planning;
+
+- Supporting disaster preparedness across all areas of behavioral health care infrastructure;
+
+- Managing disaster-specific discretionary funding provided through Congress for large scale disaster events (e.g. September 11 Terrorist Attacks, Superstorm Sandy, Hurricane Maria);
+
+- Liaising with emergency management agencies to support operational awareness of behavioral health prevention, treatment, and recovery resources across all phases of disasters;
+
+- Fostering learning and growth in fields of DBH through a range of topic areas, including understanding the broader effects of climate, emerging and evidence-based practices in trauma, and trauma-informed services;
+
+- Coordinating intra/inter-agency capabilities with government and non-governmental partners, including planning for, and coordinating during disaster response, recovery, mitigation, and preparedness; and
+
+- Developing, implementing, and maintaining the SAMHSA Concept of Operations (CONOPs) that address most emergent scenarios.
+
+
+## SAMHSA Emergency Response Grants
+
+
+SAMHSA Emergency Response Grants
+
+A SAMHSA-wide grant opportunity, inclusive of mental health and substance use prevention, response, and recovery services, that authorizes SAMHSA to act immediately under emergency circumstances that create a behavioral health crisis, where the crisis overwhelms the behavioral health system or creates behavioral health service needs that do not fit existing behavioral health resources.
+
+
+## Types of Disasters
+
+
+Natural and human-caused disasters affect thousands of people each year. These major adverse events have the potential to cause catastrophic loss of life and physical destruction. They are often unexpected and can leave whole communities in shock.
+
+Natural and human-caused disasters affect thousands of people each year. These major adverse events have the potential to cause catastrophic loss of life and physical destruction. They are often unexpected and can leave whole communities in shock.
+
+- Tornadoes and Severe Storms
+
+
+### Tornadoes and Severe Storms
+
+
+- Hurricanes and Tropical Storms
+
+
+### Hurricanes and Tropical Storms
+
+
+- Incidents of Mass Violence
+
+
+### Incidents of Mass Violence
+
+
+
+## Memorial Dates and Activating Events
+
+
+
+## Memorial Dates and Activating Events
+
+
+The memorial date of a disaster or tragic event can renew feelings of fear, anxiety, and sadness in disaster survivors.
+
+
+## At-risk Populations
+
+
+
+## At-risk Populations
+
+
+Trauma has no boundaries regarding age, gender, race, or socioeconomic status. Learn more about those who are at higher risk of experiencing trauma-related emotional distress.
+
+
+## Warning Signs of Distress
+
+
+
+## Warning Signs of Distress
+
+
+Traumatic events and disasters can have a devastating impact on people’s lives. Learn about the warning signs of emotional distress.
+
+People can experience a wide range of emotions before and after a disaster or traumatic event. It’s important to find healthy ways to cope when these events happen.
+
+
+## What is Trauma?
+
+
+
+## What is Trauma?
+
+
+SAMHSA describes individual trauma as an event or circumstance resulting in: physical harm, emotional harm, and/or life-threatening harm.
+
+
+## Disaster Tools and Programs
+
+
+- Disaster Distress Helpline (DDH)– The first national hotline (1-800-985-5990) dedicated to providing year-round disaster crisis counseling. This toll-free, multilingual, crisis support service is available 24/7 to all residents in the U.S. and its territories who are experiencing emotional distress related to natural or human-caused disasters and emergencies.
+
+- SAMHSA Disaster Mobile App– A free mobile app that offers first responders immediate access for any type of traumatic event at every phase of response, including pre-deployment preparation, on-the-ground assistance and post-deployment resources.
+
+- Division of Trauma and Disaster Behavioral Health (PDF | 266 KB)
+
+- Crisis Counseling Assistance and Training Program (CCP)– A short-term disaster relief grant for states, U.S. territories, and federally recognized tribes. CCP grants are awarded after a presidential disaster declaration. CCP funding supports community-based outreach, counseling, and other mental health services to survivors of natural and human-caused disasters. FEMA funds and implements the CCP as a supplemental assistance program to support mental health assistance and training activities in presidentially declared major disaster areas.
+
+- Disaster Technical Assistance Center (DTAC)– Assists states, territories, tribes, local entities, and grantees with all-hazards focused technical assistance and training to help them prepare for, respond to, and recover from the mental health and substance use-related effects of disasters and traumatic events. The DTAC webpage houses wide array of publications, tip-sheets, trainings, toolkits, and other resources pertinent to the field of disaster behavioral health, including theDisaster Behavioral Health Information Series (DBHIS) Resource Center.
+
+- National Child Traumatic Stress Network (NCTSN)– Created to raise the standard of care and increase access to services for children and families who experience or witness traumatic events. The NCTSN includes frontline providers, family members, researchers, and national partners committed to changing the course of children’s lives by improving their care and moving scientific gains quickly into practice across the U.S.
+
+- Resiliency in Communities After Stress and Trauma (ReCAST)– Assists high-risk youth and families and promote resilience and equity in communities that have recently faced civil unrest through implementation of evidence-based violence prevention, and community youth engagement programs, as well as linkages to trauma-informed behavioral health services.
+
+- SAMHSA Emergency Response Grants (SERG)– A SAMHSA-wide grant opportunity (inclusive of mental health and substance use prevention, response, and recovery services) that authorizes SAMHSA to act immediately under emergency circumstances that create a behavioral health crisis, where the crisis overwhelms the behavioral health system or creates behavioral health service needs that do not fit existing behavioral health resources. SERG funds are “funds of last” resort and cannot supplant existing resources.
+
+- Disaster Distress Helpline (DDH)– The first national hotline (1-800-985-5990) dedicated to providing year-round disaster crisis counseling. This toll-free, multilingual, crisis support service is available 24/7 to all residents in the U.S. and its territories who are experiencing emotional distress related to natural or human-caused disasters and emergencies.
+
+- SAMHSA Disaster Mobile App– A free mobile app that offers first responders immediate access for any type of traumatic event at every phase of response, including pre-deployment preparation, on-the-ground assistance and post-deployment resources.
+
+
+### Training and Programs
+
+
+- Division of Trauma and Disaster Behavioral Health (PDF | 266 KB)
+
+- Crisis Counseling Assistance and Training Program (CCP)– A short-term disaster relief grant for states, U.S. territories, and federally recognized tribes. CCP grants are awarded after a presidential disaster declaration. CCP funding supports community-based outreach, counseling, and other mental health services to survivors of natural and human-caused disasters. FEMA funds and implements the CCP as a supplemental assistance program to support mental health assistance and training activities in presidentially declared major disaster areas.
+
+- Disaster Technical Assistance Center (DTAC)– Assists states, territories, tribes, local entities, and grantees with all-hazards focused technical assistance and training to help them prepare for, respond to, and recover from the mental health and substance use-related effects of disasters and traumatic events. The DTAC webpage houses wide array of publications, tip-sheets, trainings, toolkits, and other resources pertinent to the field of disaster behavioral health, including theDisaster Behavioral Health Information Series (DBHIS) Resource Center.
+
+- National Child Traumatic Stress Network (NCTSN)– Created to raise the standard of care and increase access to services for children and families who experience or witness traumatic events. The NCTSN includes frontline providers, family members, researchers, and national partners committed to changing the course of children’s lives by improving their care and moving scientific gains quickly into practice across the U.S.
+
+- Resiliency in Communities After Stress and Trauma (ReCAST)– Assists high-risk youth and families and promote resilience and equity in communities that have recently faced civil unrest through implementation of evidence-based violence prevention, and community youth engagement programs, as well as linkages to trauma-informed behavioral health services.
+
+- SAMHSA Emergency Response Grants (SERG)– A SAMHSA-wide grant opportunity (inclusive of mental health and substance use prevention, response, and recovery services) that authorizes SAMHSA to act immediately under emergency circumstances that create a behavioral health crisis, where the crisis overwhelms the behavioral health system or creates behavioral health service needs that do not fit existing behavioral health resources. SERG funds are “funds of last” resort and cannot supplant existing resources.

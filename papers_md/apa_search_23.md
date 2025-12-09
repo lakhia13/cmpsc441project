@@ -1,0 +1,74 @@
+# Search
+
+**Source:** APA
+**URL:** https://www.psychiatry.org/patients-families/ptsd
+
+---
+
+Posttraumatic stress disorder (PTSD) is a psychiatric condition that may occur in people who have experienced or witnessed a traumatic event or series of traumatic events. The individual often experience the event or events as emotionally or physically harmful or life-threatening. Examples include, but are not limited to, abuse (physical, sexual, emotional), natural disasters, serious accidents, terrorist acts, war/combat exposure, intimate partner violence, and medical illness. However, most individuals who experience traumas do not go on to develop PTSD.
+
+Many people who are exposed to a traumatic event experience symptoms similar to PTSD symptoms in the days following the event. However, for a person to be diagnosed with PTSD, symptoms must last for more than a month and must cause significant distress or problems in the individual's daily functioning. Many individuals develop symptoms within three months of the trauma, but symptoms may appear later and often persist for months and sometimes years.
+
+PTSD can occur in anyone of any ethnicity, nationality or culture, and at any age. The prevalence of PTSD in the U.S. is estimated to be approximately 4% of U.S. adults and 8% of U.S. adolescents aged 13-18. The lifetime prevalence in the U.S. is estimated to be 6%.
+
+
+## Expert Q&A: PTSD
+
+
+
+### What physical problems are commonly associated with posttraumatic stress disorder (PTSD)?
+
+
+In addition to changes in thoughts, feelings, and behaviors, people with PTSD may also experience physical problems. These could be acute or chronic. Acute physical symptoms typically last for a short time in reaction to reminders of trauma. These could include increased heart rate, sweating, trembling, muscle tension, nausea, pain (e.g., back, joints, headaches), trouble breathing, and/or dizziness. PTSD has also been linked with chronic physical problems such as high blood pressure, high cholesterol, obesity, heart disease, chronic pain, fatigue, and decreased life expectancy. The person may not realize the connection between their physical symptoms and a traumatic event. For people with chronic pain, the pain may serve as a reminder of the trauma, which in turn may cause or worsen other PTSD symptoms, depression, or alcohol and prescription medication misuse.
+
+
+### How can I best help my loved one with PTSD?
+
+
+Many trauma survivors feel helpless, which may lead a concerned spouse, family member or friend to want to help. Perhaps the most powerful approach is to just be there for the person, show acceptance and concern, and listen without being judgmental or giving advice. It can often be difficult for human beings to avoid trying to “fix” problems facing their loved ones, but simply trying to listen and understand tends to be better received and is more likely to be effective. Allow your loved one to talk about the trauma only if he or she wants to. Make it known that you are available to hear their story and talk to them whenever they are ready. Lovingly encourage additional support from family, friends, and faith and community resources. Lovingly encourage healthy living, such as attention to diet, exercise and refraining from smoking, drugs and excessive use of alcohol. It may also be a good time to plan relaxing and enjoyable leisure time activities.
+
+Take some time to educate yourself about trauma, PTSD and recovery and healing. Learning about what your loved one may be going through will help you and your family to understand better and be more supportive. Remember to take care of your own physical and mental health as well.
+
+Some people are afraid to ask their loved ones if they are thinking about hurting themselves. One fear is that it will “plant the idea” in the person’s mind. Studies show quite the opposite: asking about, acknowledging, and talking about suicide actually reduces risk. Another fear is not knowing what to do if the person says they are having suicidal thoughts.
+
+To start, continue to try to listen and understand in a non-judgmental manner. Call the national crisis hotline at 988, which can provide you and your loved one with local, life-saving resources. You can even call 988 with your loved one and put the crisis counselor on speaker phone so you can talk, ask questions, and listen together.
+
+
+### Why do some people get PTSD after a traumatic event and others do not?
+
+
+Everyone’s response to trauma is different. Studies have repeatedly shown that most survivors do not develop PTSD after exposure to a traumatic event. Some may have temporary symptoms that improve with time. Others get symptoms that develop into PTSD or other problems such as depression, anxiety or substance use disorders. Several factors before, during and after a traumatic event seem to increase the likelihood of PTSD. For example, the risk is greater when the traumatic event is violent, occurs repeatedly or over a long period of time, if there is a history of adverse childhood experiences, or if there is a family history of mental health concerns. Avoidance seems to be one of the most important factors in recovery following trauma. Avoiding returning to normal life activities like work, school, driving and grocery shopping; and numbing one’s feelings through the use of alcohol, drugs or prescription sedatives after the event can also increase the risk of developing PTSD. Utilizing social support, engaging in meaningful activities, psychotherapy, and healthy nutrition and sleeping habits can help prevent the development of PTSD after a trauma.
+
+
+### What's the difference between a normal reaction to a traumatic event and PTSD?
+
+
+It has been said that “PTSD is a normal reaction to an abnormal event.” Unfortunately, most people will experience at least one traumatic event in their lifetime. The way people react to trauma can vary greatly depending on the nature of the trauma, the person’s coping skills, and their environment after the trauma. Common reactions include sadness, irritability, confusion, emotional numbness, detachment, guilt, horror, helplessness, humor and altruism. In the immediate aftermath of a major traumatic event, most people complain of stress, difficulty concentrating, sleeping or getting along with others. Usually, these symptoms improve within a few weeks. With PTSD, the troubling symptoms continue or even worsen, affecting social and work functioning. If you or a loved one are struggling to cope with the effects of a trauma it may be useful to seek professional help from a psychotherapist and/or psychiatrist.
+
+
+### What types of treatments are there for PTSD?
+
+
+Some trauma survivors believe that PTSD cannot be treated or that they are somehow so “broken” that they are a hopeless case. To the contrary, the vast majority of people with PTSD who follow treatment recommendations recover and lead happy, meaningful lives. This is true even for those who survived horrific sexual traumas, child abuse, and war. Even without psychiatric treatment, PTSD usually goes away within 6 years on average. Seeking any sort of psychiatric treatment cuts that time at least in half. Trauma-focused psychotherapies are the gold standard of treatment, with most people no longer meeting criteria for PTSD after 10-12 weeks of therapy. Several effective psychotherapies are available including cognitive behavioral therapy (CBT), cognitive processing therapy (CPT), prolonged exposure therapy (PE), and eye movement desensitization and reprocessing (EMDR). Talking about trauma can be difficult but doing so with a skilled professional has the best chance of processing the trauma, decreasing reactivity, improving coping, improving functioning, and recovering from PTSD. This is supported by countless trauma survivors and numerous studies, many of which show that psychotherapy changes the brain, normalizing parts that have been negatively affected by trauma.
+
+Some medications have proven to be helpful for PTSD, such as the antidepressants known as selective serotonin reuptake inhibitors (SSRIs) and serotonin norepinephrine reuptake inhibitors (SNRIs), and a medication for sleep and nightmares called prazosin. Some medications can worsen PTSD, such as benzodiazepines and stimulants, and are best avoided.
+
+The combination of evidence-based medications and psychotherapy is often more effective than either form alone. However, unlike some conditions in which medications are primary and psychotherapy is secondary (e.g., schizophrenia, attention-deficit/hyperactive disorder), psychotherapy is primary and medications are secondary in the treatment of PTSD. Anxiety, especially in the short term, rarely gets better with medications alone.
+
+Self-help tools, includingPTSD Coach OnlineandPTSD Coach app, are available from theNational Center for PTSD. These offer support for coping with sadness, anxiety and other symptoms that people who have been through trauma can develop. They can help you relax when you feel stressed, improve your mood, learn how to tackle difficult problems and help change thinking patterns.
+
+
+### Can children experience PTSD?
+
+
+Many children experience traumas, including the loss of a parent, and physical and sexual abuse. Just like in adults, these and other traumas may lead to PTSD, or other mood or behavioral problems. However, years of research suggest that some of the symptoms of PTSD may differ for young children. Like adults, children might experience nightmares, intrusive thoughts about trauma, flashbacks, or strong reactions to reminders of trauma, but young children sometimes express their thoughts and feelings through play. Trauma-related play is rarely experienced as fun, but it may not necessarily appear distressing either. Sometimes it is done in an almost involuntary, detached and repetitive manner. Sometimes it is a clear reenactment of trauma(s) and other times it may have trauma-related themes that are not easily connected to the traumatic event.
+
+PTSD diagnoses are commonly missed in children or attributed to other conditions with similar symptoms. For example, poor grades, hyperactivity, stomachaches, headaches, bedwetting, and frequent crying are commonly seen in children with PTSD, with other physical or mental health conditions, or with no physical or mental health conditions at all. PTSD may involve some of these things but is also characterized by the following. Children with PTSD may experience distressing thoughts, including trauma memories that occur without warning. Children may also have trouble falling and staying asleep, and/or have nightmares. They may try to avoid people or conversations that serve as reminders of the event and they may act more irritable, have angry outbursts, or be easily startled. The most important thing for determining if it is PTSD or another mental health condition is to recognize if the symptoms are impacting how a child functions in school and relates to family members and peers. A trained mental health professional, such as a psychiatrist, psychologist, clinical social worker, or licensed professional counselor can assist with diagnosis and assessing the need for treatment.
+
+Helping a child with PTSD generally involves assisting the child, parents and caregivers, creating a feeling of safety, helping the child speak about their feelings and experiences directly or through art and play, and teaching the child relaxation and coping skills. For more information on understanding and helping children of all ages heal from traumatic events visit theNational Child Traumatic Stress Network.
+
+
+### Jeffrey Guina, M.D., DFAPA
+
+
+Chief Medical Officer | Easterseals MORCPsychiatry Residency Program Director | Corewell Health/Beaumont Behavioral HealthAssociate Professor | Oakland UniversityClinical Associate Professor | Michigan State University, Wayne State University & Wright State University

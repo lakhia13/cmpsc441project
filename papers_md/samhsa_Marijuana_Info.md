@@ -1,0 +1,143 @@
+# Marijuana Info
+
+Source: SAMHSA
+URL: https://www.samhsa.gov/marijuana
+
+- Learn About SubstancesAlcoholMarijuana and CBDKnow the Risks of MarijuanaMarijuana IQ QuizMarijuana Multimedia ResourcesMarijuana and PregnancyPrescriptions and OpioidsTobacco, E-cigarettes, and VapingStimulantsRisks of Using Drugs
+
+- Marijuana and CBDKnow the Risks of MarijuanaMarijuana IQ QuizMarijuana Multimedia ResourcesMarijuana and Pregnancy
+
+- Know the Risks of Marijuana
+
+- Marijuana IQ Quiz
+
+- Marijuana Multimedia Resources
+
+- Marijuana and Pregnancy
+
+- Prescriptions and Opioids
+
+- Tobacco, E-cigarettes, and Vaping
+
+- Risks of Using Drugs
+
+- Substance Use Prevention
+
+- Substance Use Disorder Treatment
+
+- Recovery and Recovery Support
+
+- What is Substance Use Disorder?
+
+- Drug-Free Workplace
+
+- 988 Suicide & Crisis Lifeline
+
+# Know the Effects, Risks and Side Effects of Marijuana
+
+
+Marijuana use comes with real risks that can impact a person’s health and life.
+
+Marijuana is the most commonly used illegal substance in the U.S. and its use is growing. Marijuana use among all adult age groups, both sexes, and pregnant women is going up. At the same time, the perception of how harmful marijuana use can be is declining. Increasingly, young people today do not consider marijuana use a risky behavior.
+
+But there are real risks for people who use marijuana, especially youth and young adults, and women who are pregnant or nursing. Today’s marijuana is stronger than ever before. People can and do become addicted to marijuana.
+
+Approximately 1 in 10 people who use marijuana will become addicted. When they start before age 18, the rate of addiction rises to 1 in 6.
+
+
+## Marijuana Risks
+
+
+Marijuana use can have negative and long-term effects:
+
+Brain health:Marijuana can cause permanent IQ loss of as much as 8 points when people start using it at a young age. These IQ points do not come back, even after quitting marijuana.
+
+Mental health:Studies link marijuana use to depression, anxiety, suicide planning, and psychotic episodes. It is not known, however, if marijuana use is the cause of these conditions.
+
+Athletic Performance:Research shows that marijuana affects timing, movement, and coordination, which can harm athletic performance.
+
+Driving:People who drive under the influence of marijuana can experience dangerous effects: slower reactions, lane weaving, decreased coordination, and difficulty reacting to signals and sounds on the road.
+
+Baby’s health and development:Marijuana use during pregnancymay cause fetal growth restriction, premature birth, stillbirth, and problems with brain development, resulting in hyperactivity and poor cognitive function. Tetrahydrocannabinol (THC) and other chemicals from marijuana can also be passed from a mother to her baby through breast milk, further impacting a child’s healthy development.
+
+Daily life:Using marijuana can affect performance and how well people do in life. Research shows that people who use marijuana are more likely to have relationship problems, worse educational outcomes, lower career achievement, and reduced life satisfaction.
+
+
+## Marijuana and Pregnancy
+
+
+
+## Marijuana and Pregnancy
+
+
+Marijuana use during pregnancy can be harmful to a baby’s health and cause many serious problems.
+
+
+## What is Your Marijuana IQ?
+
+
+
+## What is Your Marijuana IQ?
+
+
+How much do you really want to know about the risks of marijuana? You might be surprised.
+
+
+## Marijuana Addiction
+
+
+Contrary to popular belief, marijuana is addictive. Research shows that:
+
+- 1-in-6 people who start using the drug before the age of 18 can become addicted.
+
+- 1-in-10 adults who use the drug can become addicted.
+
+Over the past few decades, the amount of THC in marijuana has steadily climbed; today's marijuana has three times the concentration of THC compared to 25 years ago. The higher the THC amount, the stronger the effects on the brain—likely contributing to increased rates of marijuana-related emergency room visits. While there is no research yet on how higher potency affects the long-term risks of marijuana use, more THC is likely to lead to higher rates of dependency and addiction.
+
+
+## About Marijuana
+
+
+Marijuana refers to the dried leaves, flowers, stems, and seeds from theCannabis sativaorCannabis indicaplant. Marijuana is a psychoactive drug that contains close to 500 chemicals, including THC, a mind-altering compound that causes harmful health effects.
+
+People smoke marijuana in hand-rolled cigarettes, in pipes or water pipes, in blunts, and by using vaporizers that pull THC from the marijuana. Marijuana can also be mixed in food (edibles), such as brownies, cookies, and candy, or brewed as a tea. People also smoke or eat different forms of marijuana extracts, which deliver a large amount of THC and can be potentially more dangerous.
+
+
+## Rise of Marijuana Use
+
+
+Today, marijuana use is on the rise among all adult age groups, both sexes, and pregnant women. People ages 18-25 have the highest rate of use.
+
+Marijuana and THC remain illegal at the federal level, even though many states have legalized its use. In states where legal, marijuana is a fast-growing industry with sales to individuals over 21 in retail stores, wineries, breweries, coffee shops, dispensaries, online, as well as grown at home.
+
+»View and share the following marijuana videos and resources
+
+Video: Marijuana Use while Pregnant or Breastfeeding
+
+Video: Virtual Assistant
+
+7 Ways Marijuana Can Affect Your Brain Health (PDF | 901 KB)
+
+Video: Build a Brain
+
+If you, or someone you know, need help to stop using substances – whether the problem is methamphetamine, alcohol or another drug – callSAMHSA’s National Helplineat1-800-662-HELP(4357) or TTY:1-800-487-4889, or text your zip code to435748(HELP4U), or use theSAMHSA’s Behavioral Health Treatment Services Locatorto get help.
+
+
+## References and Relevant Resources
+
+
+- Technology Transfer Centers (TTC) Program marijuana resources
+
+- Changes in Cannabis Potency over the Last Two Decades (1995-2014) - Analysis of Current Data in the United States: National Center for Biotechnology Information
+
+- Drugged Driving DrugFacts | NIDA
+
+- Drug Facts: Marijuana | NIDA
+
+- Drug Facts: Marijuana | United States Drug Enforcement Administration
+
+- National Survey on Drug Use and Health | SAMHSA
+
+- Marijuana and Public Health | Centers for Disease Control and Prevention
+
+- The Contribution of Cannabis Use to Variation in the Incidence of Psychotic Disorder Across Europe | The Lancet
